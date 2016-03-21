@@ -2,7 +2,7 @@
 
 ### Tudo bem? Espero que sim!
 
-Não sei se você sabe, mas se a cada poster/encarte promocional que deixassem aqui em casa deixassem <strong>dois reais (R$2)</strong>, eu estaria rica!
+Não sei se você sabe, mas se a cada poster/encarte promocional que deixassem aqui em casa deixassem junto a quantia de <strong>dois reais (R$2)</strong>, eu estaria <strong>rica!</strong>
 
 #### Isso mesmo, RICA!
 
